@@ -73,9 +73,8 @@
 
 - 📫 邮箱：<a href="mailto:2810873701@qq.com">2810873701@qq.com</a>
 - 💬 QQ：<code>2810873701</code>
-- 🧭 更多链接：<a href="https://github.com/LoveLosita">GitHub @LoveLosita</a><br>
-<a href="https://www.bilibili.com/LoveLosita">bilibili正在用的账号 @LoveLosita</a><br>
-<a href="https://www.bilibili.com/Losita_">bilibili老账号 @Losita_</a>
+- 🧭 更多链接：<a href="https://space.bilibili.com/3493299044223602">bilibili正在用的账号 @LoveLosita</a><br>
+<a href="https://space.bilibili.com/160821543">bilibili老账号 @Losita_</a>
 
 ---
 
